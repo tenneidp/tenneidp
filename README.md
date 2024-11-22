@@ -16,4 +16,4 @@ In my AC life, I learned lots of skills, I'm looking forward the day I use them!
 
 ***
 
-For mor information find me [at](https://gravatar.com/tenneidp).
+For more information find me [at](https://gravatar.com/tenneidp).
