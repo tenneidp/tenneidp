@@ -1,4 +1,4 @@
-# Hello everyone! There is Mr.InPax!
+# Hello everyone! There is InPax!
 ## I created my Github account for the Algorithm Competition when I in Middle.
 ## I tring to find out most interesting techs in the world, I think the answer for now is Computer Science.
 
